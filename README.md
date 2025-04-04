@@ -10,7 +10,8 @@
 
 **访问官网**：点击下方链接进入
 
-- [ **青云梯机场官方地址入口**](https://ivt01.qytaff.cc/register?aff=ldlEglTb)
+- [ **青云梯机场官方地址入口1**](https://ivt01.qytaff.cc/register?aff=ldlEglTb)
+- [ **青云梯机场官方地址入口2**](https://qingyunti.pro/register?aff=ldlEglTb)
 
 ![image](https://github.com/user-attachments/assets/2626fb1f-aeed-4673-bb39-7a796a4d658e)
 
